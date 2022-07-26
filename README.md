@@ -1,5 +1,5 @@
-- 👋 ooi eu sou @Yagatha
-- 👀 estou interessada em jogos e livros 
+- 💜 ooi eu sou @Yagatha
+- 😽 estou interessada em jogos e livros 
 - 🌱 sou estudante e começando com o marketing 
 - 📫 não me procure 
 
